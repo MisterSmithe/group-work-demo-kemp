@@ -1,2 +1,2 @@
 
-The itsy bitsy kangaroo crawled up the water spout
+The itsy bitsy spider crawled up the water spout
